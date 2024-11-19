@@ -1,4 +1,4 @@
-## Olá, Eu sou o Brenner Ribeiro
+## Muito prazer, Eu sou o Brenner Ribeiro
 
 
 - 🔭 Estou procurando a primeira oportunidade de trabalho na minha área 
